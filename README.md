@@ -1,0 +1,1 @@
+# bohumin.pirati.cz
